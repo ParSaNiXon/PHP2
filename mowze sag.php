@@ -1,1 +1,0 @@
-mowze ziba
